@@ -12,7 +12,7 @@ After his typical breakfast of toast and an eggs he left for school.
 Normally Whiteboard would have walked down Bleaker street, but today there was construction and he decided to take Flanders behind the zoo.
 
 Being on time was not one of Whiteboard specialities today would prove to be no different.
-As he moved slowly, he kept a close eye on who were inside the zoo.
+As he moved slowly towards the Zookeeper, he kept a close eye on who were inside the zoo.
 As he walked behind the zoo he could see the trees and thick foliage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
 Whiteboard had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
